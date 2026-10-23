@@ -220,4 +220,4 @@ Call of Duty 2 is available as a full free version, offering all features and up
 Don't miss out on a chance to experience one of the most thrilling first-person shooters ever made. Download Call of Duty 2 now and immerse yourself in the epic battles of World War II!
 
 ---
-**Last updated:** 2026-10-23 14:36:39 UTC
+**Last updated:** 2026-10-23 18:51:01 UTC
